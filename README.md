@@ -1,0 +1,1 @@
+# AFK-Journey-free-diamonds-AFK-Journey-energy-AFK-Journey-cheats
